@@ -1,3 +1,5 @@
+https://www.youtube.com/watch?v=OLsteD3xkPQ
+
 ## Decentralized platform for video publishing
 
 ## 🔧 Project Diagram:
